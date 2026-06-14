@@ -37,3 +37,5 @@
 
 ​حارس الأثر | وليد جمو
 مؤسس مدرسة الضمير الواقعي للفكر والأدب
+<img width="864" height="1224" alt="1000207374" src="https://github.com/user-attachments/assets/e44e1f9a-a1a5-4113-8ffd-e8d64f225adc" />
+
